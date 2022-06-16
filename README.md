@@ -2,4 +2,4 @@
 
 - 👨‍💻 I am interested in working on Salesforce.
 
-- 📫 You can reach me @ vishalraetihi4sq@gmail.com
+- 📫 You can reach me @ desaivishal87@gmail.com
